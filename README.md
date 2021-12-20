@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nocturno00
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing rn
+- 📫 How to reach me Nocturnal1113@gmail.com
